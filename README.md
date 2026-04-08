@@ -1,6 +1,6 @@
-## Hi there 👋
-![17756363450943140004795792938789](https://github.com/user-attachments/assets/bc00baec-82ef-45a6-8526-4fa2231efebc)
 
+![17756363450943140004795792938789](https://github.com/user-attachments/assets/bc00baec-82ef-45a6-8526-4fa2231efebc)
+my wife lol
 <!--
 **EV3RNIGHT/EV3RNIGHT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
